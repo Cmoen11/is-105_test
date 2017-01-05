@@ -1,1 +1,1 @@
-![alt text](https://www.dropbox.com/s/dbm33cmankbfjzq/11017486_10152934588426356_7200157233102047315_n.jpg" Logo Title Text 1")
+![alt text](https://i.gyazo.com/91c545ada284eedc98a0ecb46d2b9ff6.jpg" Logo Title Text 1")
